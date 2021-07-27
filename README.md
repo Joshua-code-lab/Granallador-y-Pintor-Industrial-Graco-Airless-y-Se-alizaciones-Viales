@@ -1,1 +1,1 @@
-# Grallanador-y-Pinto-Industrial-Graco-Airless-y-Se-alizaciones-Viales
+# Grallanador-y-Pintor-Industrial-Graco-Airless-y-Se-alizaciones-Viales
